@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NikSidorov
 - 👀 I’m interested in self-development
-- 🌱 I’m currently learning at skillbox
+- 🌱 I’m currently learning at skillbox and founder academy
 - 💞️ I’m looking to collaborate on interesting projects
 - 📫 How to reach me: Telegram @ne_gatsby
 - ⚡ Fun fact: Fire protection officer
